@@ -1,1 +1,1 @@
-## Katıldğım testnetler
+## Katıldığım testnetler
